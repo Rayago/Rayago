@@ -1,4 +1,4 @@
-# Prazer em conhecer! Eu me chamo Thiago Guimarães! 👋
+# Prazer em conhecer! Eu me chamo Thiago! 👋
 
 
 
